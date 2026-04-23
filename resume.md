@@ -26,6 +26,6 @@ Orlando, FL | Aug 2025 – Present\
 •	Makes high quality drinks, milkshakes and scoops of custard at a speed that ensures guest satisfaction.\
 \
 CERTIFICATIONS & SKILLS\
-Florida Food Handler Certification • CompTIA Certificate of Competency in Technology FundamentalsCustomer Service • Team Collaboration • Multitasking • Fast Learner 
+Florida Food Handler Certification • CompTIA Certificate of Competency in Technology Fundamentals • Customer Service • Team Collaboration • Multitasking • Fast Learner 
 
 
