@@ -5,4 +5,5 @@ title: Instructions
 
 # Instructions
 
-[Paste your instructions here]
+[MINECRAFT HOW TO TEXTURE PACK.docx](https://github.com/user-attachments/files/27026766/MINECRAFT.HOW.TO.TEXTURE.PACK.docx)
+
