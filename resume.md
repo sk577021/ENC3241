@@ -1,11 +1,6 @@
----
-layout: default
-title: Resume
----
-
-Skyler Lucas
-Orlando, FL • (407) 555-5555 • sk577021@ucf.edu
-
+Cain Lucas\
+Orlando, FL • (407) 555-5555 • sk577021@ucf.edu\
+\
 EDUCATION\
 University of Central Florida — Orlando, FL\
 Bachelor of Science in Information Technology\
