@@ -4,7 +4,7 @@ title: Resume
 ---
 
 Skyler Lucas
-Orlando, FL • (904) 778-6759 • sk577021@ucf.edu
+Orlando, FL • (407) 555-5555 • sk577021@ucf.edu
 
 EDUCATION\
 University of Central Florida — Orlando, FL\
