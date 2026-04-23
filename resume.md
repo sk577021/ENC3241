@@ -6,8 +6,8 @@ title: Resume
 Skyler Lucas
 Orlando, FL • (904) 778-6759 • sk577021@ucf.edu
 
-EDUCATION
-University of Central Florida — Orlando, FL
+EDUCATION \n
+University of Central Florida — Orlando, FL \n
 Bachelor of Science in Information Technology
 Aug 2023 – Present
 Florida State College at Jacksonville — Jacksonville, FL
