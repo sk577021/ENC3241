@@ -23,12 +23,7 @@ Jacksonville, FL | Jul 2022 – Aug 2022\
 Auditmacs — IT Intern\
 Jacksonville, FL | Jan 2023 – April 2023\
 •	Aided in regular private network and firewall maintenance.\
-•	Developed real time customer service skills over the phone.\
-Shake Shack — Team Member\
-Orlando, FL | Aug 2025 – Present\
-•	Provide customer service in a high-volume environment.\
-•	Operate POS systems and handle cash transactions.\
-•	Cross-trained across multiple stations while maintaining cleanliness and operational efficiency.
+•	Developed real time customer service skills over the phone.
 
 CERTIFICATIONS & SKILLS\
 CompTIA Certificate of Competency in Technology Fundamentals • Florida Food Handler Certification • Customer Service • Team Collaboration • Multitasking • Fast Learner
