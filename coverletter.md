@@ -5,4 +5,5 @@ title: Cover Letter
 
 # Cover Letter
 
-[Paste your cover letter here]
+[Cover Letter 2026 Santoro.docx](https://github.com/user-attachments/files/27026729/Cover.Letter.2026.Santoro.docx)
+
