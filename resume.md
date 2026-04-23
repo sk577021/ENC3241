@@ -24,8 +24,8 @@ Orlando, FL | Aug 2025 – Present\
 •	Operates POS systems and handle cash transactions.\
 •	Cross-trained across multiple stations while maintaining cleanliness and operational efficiency.\
 •	Makes high quality drinks, milkshakes and scoops of custard at a speed that ensures guest satisfaction.\
-
-CERTIFICATIONS & SKILLS
+\
+CERTIFICATIONS & SKILLS\
 Florida Food Handler Certification • CompTIA Certificate of Competency in Technology FundamentalsCustomer Service • Team Collaboration • Multitasking • Fast Learner 
 
 
