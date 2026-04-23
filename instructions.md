@@ -5,4 +5,4 @@ title: Instructions
 
 # Instructions
 
-[Paste your instructions here]
+[Cain Lucas Instructions Assignment](https://github.com/user-attachments/files/27028047/MINECRAFT.HOW.TO.TEXTURE.PACK.docx)
